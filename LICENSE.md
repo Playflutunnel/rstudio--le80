@@ -1,4 +1,4 @@
-# 
+# vip MathType for PC | MathType for Windows Addon | parallel-computing + data-visualization offers the most advanced MathType for PC | MathType for Windows addon, with
 
 
 
